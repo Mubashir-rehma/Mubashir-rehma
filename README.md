@@ -1,4 +1,4 @@
-# Mubashir Rehman (Mubashir)
+# Mubashir Rehman (Mubashir-rehma)
 
 
 <div align="center">
